@@ -1,5 +1,3 @@
-# RBgangstreet
-
 eae suave🤙
 
 seja bem vindo ao domínio do monkeydmello, cujo eu batizei de RB gang street🙅
